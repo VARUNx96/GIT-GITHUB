@@ -1,0 +1,1 @@
+print("stop fucking caring about others insted work on yourself....😎")
